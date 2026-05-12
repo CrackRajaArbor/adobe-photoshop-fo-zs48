@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Photoshop for macOS plugin with Adobe Photoshop for macOS automatic Plugin: export presets & batch processing. Featuring export presets and batch
 
 
 
